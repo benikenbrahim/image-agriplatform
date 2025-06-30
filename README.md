@@ -3,6 +3,8 @@
 ![soil analysis](https://github.com/user-attachments/assets/30662bdf-c01f-4f83-b759-8f0e5d122cc3)
 ![equipment3](https://github.com/user-attachments/assets/2e0ef52f-436d-49bc-928e-e385be17c50f)
 ![equipment4](https://github.com/user-attachments/assets/4475048f-71e0-45fc-a9f1-b2de7c3830a7)
+![blé](https://github.com/user-attachments/assets/9e7ddb6d-693f-462f-bcda-96628f34fd6d)
+
 ![equipment8](https://github.com/user-attachments/assets/e855f558-1830-487f-b4d9-a8572728ae18)
 ![equipment6](https://github.com/user-attachments/assets/601cf8a5-8e6a-42c6-9923-e7479f9bdd36)
 ![equipment7](https://github.com/user-attachments/assets/7e7b550a-c5e8-43f5-afb7-96cb755e8699)
